@@ -10,6 +10,3 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on 
 - 🤔 I’m looking for help with an software developer
 - 💬 Ask me about my learning languages 
-- 📫 How to reach me: mail me
-- 😃 pronouns:bro
-- ⚡ Fun fact:nothing
